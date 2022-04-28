@@ -3,8 +3,9 @@
 - 🌱 I’m currently learning BCA as a 2nd year student and also doing Data Science and Machine Learning Internship Program by Edureka.
 - 💞️ I’m looking to collaborate with hands-on projects on DSML and exlpore it more.
 - 📫 How to reach me - 
-- Instagram :- @ _.mahwishnoor._
-- Facebbok :-  @ Mahwish Noor
+- WhatsApp :- https://wa.me/qr/Q4WUFC5HC7PSH1
+- Instagram :- https://instagram.com/_.mahwishnoor._?igshid=YmMyMTA2M2Y=
+- Facebook :-  https://www.facebook.com/profile.php?id=100080132293516
 - E-mail id :- mahwishnoor575@gmail.com
 
 <!---
